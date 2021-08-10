@@ -1,2 +1,2 @@
 # Hello-world
-Up and still standing
+I'm new here never did anything like this before 
